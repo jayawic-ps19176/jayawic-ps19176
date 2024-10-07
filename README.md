@@ -3,7 +3,7 @@
 
 ![68747470733a2f2f6d69722d73332d63646e2d63662e626568616e63652e6e65742f70726f6a6563745f6d6f64756c65732f646973702f3630313031343131363737303437352e363036386265666634363430612e676966](https://github.com/jayawic-ps19176/jayawic-ps19176/assets/154112278/caad527e-fdbf-4bbe-9630-cb98076d8261)
 - I’m currently learning **Graphic design, Computer hardware, Power BI**
-- My resume **[https://drive.google.com/file/d/1VoRUsYyk8eDFwR9UfuJ0hByPlhMh0oHe/view?usp=sharing](https://drive.google.com/file/d/1VoRUsYyk8eDFwR9UfuJ0hByPlhMh0oHe/view?usp=sharing)**
+- My resume **[https://drive.google.com/file/d/1VoRUsYyk8eDFwR9UfuJ0hByPlhMh0oHe/view?usp=sharing]([https://drive.google.com/file/d/1VoRUsYyk8eDFwR9UfuJ0hByPlhMh0oHe/view?usp=sharing](https://rb.gy/8i331c))**
 - Email: **jayawickrama9999@gmail.com**
 --------------------------------------------------------------------------------------------------------------
 
